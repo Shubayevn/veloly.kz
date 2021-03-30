@@ -1,0 +1,1 @@
+# veloly.kz
